@@ -7,7 +7,7 @@ Team Members:
 
 1.Aruna k -211419104020(Team Leader)
 
-2.Astalakshmi -211419104028(Team member 1)
+2.Astalakshmi G -211419104028(Team member 1)
 
 3.Dhanvarshini R -211419104060(Team member 2)
 
